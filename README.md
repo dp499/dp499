@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Deepak 
 - 👀 I’m interested in volleyball
-- 🌱 I’m currently learning spicer
+- 🌱 I’m currently learning electrical engineering 
 - 💞️ I’m looking to collaborate on volleyball team 
 - 📫 How to reach me by instagram id deepak_pawar_1702
 - 😄 Pronouns: ...
